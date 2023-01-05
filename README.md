@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **ag0885169@gmail.com**
 
-- ⚡ Fun fact **Focus Khoj Raha Hu Bro**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
